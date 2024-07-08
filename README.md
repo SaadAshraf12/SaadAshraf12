@@ -8,9 +8,8 @@
 
 - 📫 How to reach me **saadashraf3519@gmail.com**
 
-- ⚡ Fun fact **I am interested in anime XD
--                Machine Learning
--                Deep Learning                           **
+- ⚡ Fun fact **I am interested in anime XD, Machine Learning, Deep Learning**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
